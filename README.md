@@ -1,3 +1,2 @@
 # LichcraftVote
-LichcraftVote
-Test
+blabla 30+ votes blabla
