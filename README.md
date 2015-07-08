@@ -24,4 +24,4 @@ $100 coupon for our store
 $50 coupon for our store
 
 More information
-If there are any questions on how voting works, or any of the rewards, feel free to contact any staff member with mail or message. If you win a raffle prize, contact an admin or Lichcraft22 over mail on enjin. Happy voting! 
+If there are any questions on how voting works, or any of the rewards, feel free to contact any staff member with mail or message. If you win a raffle prize, contact Lkbz over mail on enjin. Happy voting! 
